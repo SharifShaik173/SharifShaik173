@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sharifshaik2030@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hBJ7MkMJe4jtVFenSeR7-8h_SGk56-zU/view?usp=drivesdk](https://drive.google.com/file/d/1hBJ7MkMJe4jtVFenSeR7-8h_SGk56-zU/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1hBJ7MkMJe4jtVFenSeR7-8h_SGk56-zU/view?usp=drivesdk](https://drive.google.com/file/d/1pgMJbGfdtTBI3HBnTI7DQ1-naEIWkc1c/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
